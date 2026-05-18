@@ -1,4 +1,4 @@
-#  
+#  متقدم escape tsunami for brainrots سكربت هو أفضل escape tsunami for brainrots سكربت مع ESP و بدون فترة انتظار. آمن، موثوق، ومُحَسّن لأقصى أداء.
 
 
 
